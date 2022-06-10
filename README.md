@@ -1,5 +1,5 @@
 # v13-bots
-100 star istiyorum en az
+#100 star istiyorum en az
 </br>
 bota ait görseller
 </center>
