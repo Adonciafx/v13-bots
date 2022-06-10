@@ -1,4 +1,5 @@
 # v13-bots
+https://discord.gg/safecode
 #100 star istiyorum en az
 </br>
 bota ait görseller
