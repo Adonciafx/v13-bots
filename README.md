@@ -1,5 +1,5 @@
 # v13-bots
-Adoncia#0001
+https://discord.com/users/972398070492987444
 </br>
 # 100 star istiyorum en az
 </br>
