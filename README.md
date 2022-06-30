@@ -1,8 +1,6 @@
-#v13-bots
-</br>
 #100 star istiyorum en az
 </br>
-#bota ait görseller
+#100 star istiyorum en az
 </br>
 </center>
 <img src= "https://cdn.discordapp.com/attachments/983120021200986172/984122125591937094/unknown.png">
