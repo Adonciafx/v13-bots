@@ -1,7 +1,5 @@
 #100 star istiyorum en az
 </br>
-#100 star istiyorum en az
-</br>
 </center>
 <img src= "https://cdn.discordapp.com/attachments/983120021200986172/984122125591937094/unknown.png">
 <img src= "https://cdn.discordapp.com/attachments/972768285735125022/991344324145053746/unknown.png">
